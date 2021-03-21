@@ -1,5 +1,5 @@
-Discord : https://discord.gg/3rm8Jdf2Vq
+Discord : https://discord.gg/C3aN2bBVbB
 
-<img src="http://cloud.xlife.fr/images/loadingscreen/Glitch-Loadingscreen-FiveM-V2.png">
+<img src="https://i.imgur.com/6Ig8Fcv.png">
 
 Vidéo : https://youtu.be/sUU3Bp7bPC0
